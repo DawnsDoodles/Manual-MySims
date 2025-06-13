@@ -1,2 +1,7 @@
-# Manual-MySims
-Welcome to town, we needed a new builder.
+# MySims (AP Manual)
+[under construction]
+
+## What Are You Searching For?
+
+
+## Play Guide
